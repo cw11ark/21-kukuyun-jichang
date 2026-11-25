@@ -2,7 +2,7 @@
 
 > **一句话评价：先判断是否适合：BGP入口与IEPL线路的中转机场，目前只支持自家客户端。**
 >
-> 👉 **[官网注册](https://i01.kkyaffa.cc/register?aff=vpwMjPQ0)** · 建议从 VIP1套餐 的短周期开始，先核对客户端和常用节点。
+> 👉 **[官网注册](https://i01.kkyaffa.cc/register?aff=xsR18Y09)** · 建议从 VIP1套餐 的短周期开始，先核对客户端和常用节点。
 >
 
 >
@@ -63,7 +63,7 @@
 
 ## 注册
 
-👉 **[前往酷酷云KuKuYun注册页面](https://i01.kkyaffa.cc/register?aff=vpwMjPQ0)** · 付款前逐项核对当前套餐名、周期、流量与使用限制。
+👉 **[前往酷酷云KuKuYun注册页面](https://i01.kkyaffa.cc/register?aff=xsR18Y09)** · 付款前逐项核对当前套餐名、周期、流量与使用限制。
 
 ## 更新
 
